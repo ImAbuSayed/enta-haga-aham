@@ -18,7 +18,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> نور عيني في سكون الليل
+> قلبي ينادي في كل ميل
+> إنتِ حاجة أهم من كل المنى
+> في حضنكِ أجد روحي أنا
 > ...
 
 📄 **[View Full Lyrics →](./lyrics.txt)**
